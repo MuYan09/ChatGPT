@@ -1,6 +1,6 @@
 ## ChatGPT plus国内代充指南，国内用户如何安全充值ChatGPT Plus会员？
 
-对于希望订阅ChatGPT、Claude、Grok、Spotify、YouTube、Netflix等海外平台的用户而言，我们推荐以下可靠的解决方案：[https://shop.muooy.com](https://shop.muooy.com/) （ChatGPT订阅仅需110元）。
+对于希望订阅ChatGPT、Claude、Grok、Spotify、YouTube、Netflix等海外平台的用户而言，我们推荐以下可靠的解决方案：[juzixp.com](https://juzixp.com) （ChatGPT订阅仅需110元）。
 
 ### 深入解读ChatGPT Plus：价值与优势
 
